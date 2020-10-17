@@ -25,3 +25,5 @@ There may be something more to say about the world we live in today - mass distr
 Here’s what I’ll say now: care about people, near and far.
 
 Push back against the turmoil of our age with the rising resonance of passing kindness.
+
+👋
