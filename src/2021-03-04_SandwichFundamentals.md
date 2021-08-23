@@ -1,4 +1,4 @@
-This post was inspired by a sandwich I recently had the displeasure of eating. Enjoy!
+This post was inspired by a sandwich I recently had the displeasure of eating.
 
 ~
 
